@@ -4,4 +4,4 @@
 
 ![](https://gfycat.com/sanethunderousasianconstablebutterfly)
 
-Try it out here: https://keen-booth-34ad98.netlify.app/
+Try it out here: fitymi-writer.netlify.app
