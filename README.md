@@ -4,4 +4,4 @@
 
 ![](https://gfycat.com/sanethunderousasianconstablebutterfly)
 
-Try it out here: [https://fitymi-writer.netlify.app](https://newyorkerwriter.yaaaang.com/)
+Try it out here: https://newyorkerwriter.yaaaang.com/
